@@ -1,0 +1,14 @@
+----------
+One fine day, Elon Musk, Sundar Pichai, Satya Nadella and Jensen Huang will lose their jobs too.
+Yes, the same people who say AI will take our jobs.
+They make one big statement about AI, and the whole market moves. Companies get scared. Hiring stops. All the money goes to them.
+Their job is to create fear. Fear brings money. And they are using it to build monopolies.
+Iam the victim of their noise too. Our small entities not able to book the profits.
+Will some of it come true? Maybe. But not on the timeline they say.
+So what can we do?
+Only one thing.
+Don’t listen to the noise.
+Keep learning what you love.
+Keep building real skills.
+Your future is not decided by a CEO’s speech. It is decided by what you practise every day.
+Keep learning. Keep practising. Keep growing.
